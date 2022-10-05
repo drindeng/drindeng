@@ -1,5 +1,5 @@
 # 💫 About Me:
-❤ Data Science ❤ <br>❤ Machine Learning ❤<br>👨‍🏭Industrial Engineer, PhD
+❤ Data Science ❤ <br>❤ Machine Learning ❤<br>👨‍🏭 Industrial Engineer, PhD
 
 
 ## 🌐 Socials:
