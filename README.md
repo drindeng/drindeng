@@ -1,5 +1,5 @@
 # 💫 About Me:
-❤ Data Science ❤ <br>❤ Machine Learning ❤<br>👨‍🏭 Industrial Engineer, PhD<b>👨‍👩‍👧‍👧 Husband and Father of 2 angels
+❤ Data Science ❤ <br>❤ Machine Learning ❤<br>👨‍🏭 Industrial Engineer, PhD<br>👨‍👩‍👧‍👧 Husband and Father of 2 angels
 
 
 ## 🌐 Socials:
